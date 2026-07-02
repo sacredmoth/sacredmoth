@@ -12,3 +12,4 @@
     art by <a href="https://github.com/constitum">@constitum</a> ~
 
 <p align="center"> meet my precious littl sona ♡ the thing on the right if you cabt tell...question mark
+<p align="center"> and my human val design, on the left.if you cant tell again.question mark.
